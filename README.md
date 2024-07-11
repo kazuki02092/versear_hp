@@ -1,2 +1,2 @@
 # versear_hp
-versear web page group c
+versear web page group c(thursday)
